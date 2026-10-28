@@ -1,3 +1,4 @@
-Elsha Sianipar (G1A024076)
-Dovy Alfaruk (G1A024078
-Nania Putri Pratami (G1A024080)
+anggota kelompok:
+Elsha Sianipar
+Dovy Alfaruk
+Nania Putri Pratami
